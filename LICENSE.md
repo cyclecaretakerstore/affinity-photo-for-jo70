@@ -1,4 +1,4 @@
-
+Enhance Affinity Photo for macOS with secure Affinity Photo for macOS Automation | masking tools + shortcut customization, the #1 automation. Includes masking tools and shortcut
 
 
 
